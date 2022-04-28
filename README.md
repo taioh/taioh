@@ -1,16 +1,26 @@
-### Hi there 👋
+prazer sou gustavo tenho 16 anos terei notebook naci em santa maria,Rs,brasil,e usa meu codigo no kwai669 333 527
 
+## coisasque planejo en curto prazo
+  *sono bisque doll
+  *e voltar a ver one piece
 
-**taioh/taioh** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on watch kimetsu no yaiba
-- 🌱 I’m currently learning info
-- 👯 I’m looking to collaborate on no one
-- 🤔 I’m looking for help with english
-- 💬 Ask me about anime
-- 📫 How to reach me on foot
-- 😄 Pronouns: he 
-- ⚡ Fun fact i love anime 
--->
+## coisas que gosto
+   *anime
+   *comic
+   *cartas
+   *fancic
+   *livros
+   *beyblade
+   *pokemon
+   *digimon
+## linguagens que sei
+   *soco
+   *chute
+   *cartas
+## materias que gosto 
+   *ainda nenhuma
+## caso queira chegar ate min
+   *ande
+## como falar comigo digitalmente
+   *nao tem como
+file:///C:/Users/aluno/Downloads/MicrosoftWindows.Client.CBS_cw5n1h2txyewy!InputApp/HanakoYayGIF.gif
