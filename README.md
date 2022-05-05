@@ -23,4 +23,3 @@ prazer sou gustavo tenho 16 anos terei notebook naci em santa maria,Rs,brasil,e 
    *ande
 ## como falar comigo digitalmente
    *nao tem como
-file:///C:/Users/aluno/Downloads/MicrosoftWindows.Client.CBS_cw5n1h2txyewy!InputApp/HanakoYayGIF.gif
