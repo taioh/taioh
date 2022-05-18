@@ -1,4 +1,3 @@
-prazer sou gustavo tenho 16 anos terei notebook naci em santa maria,Rs,brasil,e usa meu codigo no kwai669 333 527
 
 ## coisasque planejo en curto prazo
   *sono bisque doll
