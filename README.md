@@ -1,4 +1,4 @@
-
+𝓸𝓵𝓪
 ## coisasque planejo en curto prazo
   *sono bisque doll
   *e voltar a ver one piece
