@@ -44,5 +44,7 @@
  >   #                       𝓪𝓱 𝓪𝓬𝓪𝓫𝓸𝓾 𝓸 𝓽𝓮𝓶𝓹𝓸  :clock730:
  >    #####                                  𝓵𝓾𝓬𝓲𝓸𝓼 𝔃𝓸𝓰𝓻𝓪𝓽𝓲𝓼
 
+ ![nika luffy](file:///C:/Users/taio/Downloads/WhatsApp%20Image%202022-04-26%20at%2021.05.46.jpeg)
+
 
 ###### caso tenha curiosidade não tenho nenhuma ideia de aspiração para programação 
