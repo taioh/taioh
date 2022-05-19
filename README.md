@@ -41,8 +41,8 @@
   * 𝓻𝓹𝓰
 
 
-#                        𝓬𝓸𝓷𝓯𝓲𝓮 𝓷𝓸 𝓬𝓸𝓻𝓪çã𝓸 𝓭𝓪𝓼 𝓬𝓪𝓻𝓽𝓪𝓼
-######                                                -yugi moto 
+#                          ah acabou o tempo
+###### ----------------------------------lucios zogratis----------------------- 
 
 
 ###### caso tenha curiosidade não tenho nenhuma ideia de aspiração para programação 
