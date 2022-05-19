@@ -41,8 +41,8 @@
   * 𝓻𝓹𝓰
 
 
-#                          ah acabou o tempo
-###### ----------------------------------lucios zogratis----------------------- 
+ >                         ah acabou o tempo
+ >                                      lucios zogratis 
 
 
 ###### caso tenha curiosidade não tenho nenhuma ideia de aspiração para programação 
