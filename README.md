@@ -6,19 +6,19 @@
 
 ## 𝓬𝓸𝓲𝓼𝓪 𝓺𝓾𝓮 𝓰𝓸𝓼𝓽𝓸
   
-  * **𝓬𝓾𝓵𝓽𝓾𝓻𝓪 𝓰𝓮𝓮𝓴**
+  * __𝓬𝓾𝓵𝓽𝓾𝓻𝓪 𝓰𝓮𝓮𝓴__
   * 𝓵𝓮𝓻 𝓵𝓲𝓿𝓻𝓸𝓼
 
 ## 𝓭𝓲𝓿𝓲𝓼ã𝓸 𝓭𝓪𝓼 𝓬𝓸𝓲𝓼𝓪𝓼 𝓺𝓾𝓮 𝓰𝓸𝓼𝓽𝓸
 
   * 𝓪𝓷𝓲𝓶𝓮𝓼 
-  * **𝓬𝓪𝓻𝓽𝓪𝓼** 
+  * __𝓬𝓪𝓻𝓽𝓪𝓼__
   * 𝓳𝓸𝓰𝓸𝓼
 
 ## 𝓼𝓾𝓫𝓭𝓲𝓿𝓲𝓼ã𝓸 𝓭𝓪𝓼 𝓬𝓸𝓲𝓼𝓪𝓼 𝓺𝓾𝓮 𝓮𝓾 𝓰𝓸𝓼𝓽𝓸 1 𝓬𝓪𝓻𝓽𝓪𝓼 :envelope:
 
-  * **yu-gi-oh**
-  * **𝓶𝓪𝓰𝓲𝓬**
+  * [yu-gi-oh](https://www.duelshop.com.br/12-yu-gi-oh/)
+  * [𝓶𝓪𝓰𝓲𝓬](https://www.otemplosm.com.br/?view=ecom/home/)
   * pokemon
   * battle scenes
   * **𝓽𝓻𝓾𝓬𝓸**
@@ -28,8 +28,8 @@
 ## 𝓼𝓾𝓫𝓭𝓲𝓿𝓲𝓼ã𝓸 𝓭𝓪𝓼 𝓬𝓸𝓲𝓼𝓪𝓼 𝓺𝓾𝓮 𝓮𝓾 𝓰𝓸𝓼𝓽𝓸 2 𝓪𝓷𝓲𝓶𝓮𝓼 :art::film_projector:
   
   * 𝓯𝓪𝓷𝓯𝓲𝓬
-  * **𝓬𝓸𝓶𝓲𝓬** 
-  * **𝓶𝓪𝓷𝓰á𝓼** 
+  * [𝓬𝓸𝓶𝓲𝓬](https://charlotten-art.tumblr.com/post/182645143838/evil-deku-au-pages-1-10-im-so-sorry-for-this-i/) 
+  * [𝓶𝓪𝓷𝓰á𝓼](https://loja.panini.com.br/?gclid=Cj0KCQjwspKUBhCvARIsAB2IYutWS7RYKL48N131Xq-kqnc-V2iVBy4qj3Agv6UVpMhdpJ_F4iUZ99kaAr1OEALw_wcB/)
   * 𝓷𝓸𝓿𝓮𝓵
 
 ## 𝓼𝓾𝓫𝓭𝓲𝓿𝓲𝓼ã𝓸 𝓭𝓪𝓼 𝓬𝓸𝓲𝓼𝓪𝓼 𝓺𝓾𝓮 𝓮𝓾 𝓰𝓸𝓼𝓽𝓸 3 𝓳𝓸𝓰𝓸𝓼 :video_game:
